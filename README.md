@@ -23,4 +23,6 @@ We need to take Conscience, wherever it is stored, make our copies and share the
 
 With enough of Us, around the World, wei'll not just send a strong message opposing the privatization of knowledge — wei'll make it a thing of the Past. Will Y⁵ou join Us⁺?
 
-Æ/æ 粘土人,  016-01月11日, Y₃³
+Aaron Swartz
+
+July 2008, Eremo, Italy
